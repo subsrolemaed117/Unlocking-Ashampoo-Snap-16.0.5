@@ -1,0 +1,1 @@
+# Unlocking-Ashampoo-Snap-16.0.5
